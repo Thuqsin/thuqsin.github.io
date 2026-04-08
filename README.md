@@ -1,1 +1,0 @@
-# thuqsin.github.io
